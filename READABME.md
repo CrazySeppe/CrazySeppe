@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @CrazySeppe
+- 👀 I’m interested in Minecraft
+- 🌱 I’m currently learning Embeded Hardware and some extra from my good friend
+- 💞️ I’m looking to collaborate on a lot hahaha
+- 📫 Reach me on Discord: CrazySeppe#3426
