@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @CrazySeppe
-- 👀 I’m interested in Minecraft
+- 👀 I’m interested in Minecraft, riding my motor and car
 - 🌱 I’m currently workign while some extra from my good friend
 - 💞️ I’m looking to collaborate on a lot hahaha
 - 📫 Reach me on Discord: CrazySeppe#3426
